@@ -1,0 +1,1 @@
+One of my biggest motivations for changing my career is that I want to make a difference on a larger scale. I won't be on the front lines anymore, but with software development I will have the opportunity to positively impact people's lives by being part of a project that reaches far beyond my local community. 
